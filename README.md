@@ -1,4 +1,4 @@
-# 💫 Hi, I'm Daphne!:
+# 💫 Hi, I'm Daphne!
 💻 Information Technology student<br>🌐 I mostly create web app projects<br>🎮 I love gaming and developing games when I'm not feeling lazy
 
 
