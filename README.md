@@ -1,5 +1,5 @@
 # 💫 Hi, I'm Daphne!
-💻 BS in Information Technology graduate<br>🌐 I mostly create web app projects<br>🎮 I love gaming and developing games when I'm feeling inspired
+💻 BS in Information Technology graduate<br>🌐 I mostly create web app projects<br>🎮 I love gaming<br>🏅 Magna Cum Laude
 
 
 ## 🌐 Socials:
